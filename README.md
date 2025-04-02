@@ -1,4 +1,4 @@
-## Hola! 🙂 soy Alexandra San Martín y me dicen Lexi :) 
+## Hola! 🙂 soy Alexandra y me dicen Lexi :) 
 
 Soy estudiante en la Pontificia Universidad Católica de Chile en Ingeniería Industrial Computación y me siento cómoda programando con:
 
